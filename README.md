@@ -41,3 +41,4 @@ Conditional Formatting
 Rohit Varri | MBA in Logistics and SCM |
 Vikrama Simhapuri University | 2026 Batch |
 GitHub: github.com/rohit-varri-analyst
+<img width="1772" height="660" alt="sales  performance img rohit" src="https://github.com/user-attachments/assets/d144723a-7d44-424c-a8b2-f116c1ecfae3" />
